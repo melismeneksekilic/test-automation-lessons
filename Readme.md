@@ -1,0 +1,1 @@
+melis ders-2 ödev-1
